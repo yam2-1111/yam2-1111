@@ -1,3 +1,3 @@
 ### Hi there fellas 👋
-
-- ⚡ Fun fact: may tite...
+this is account run by random person
+ 
